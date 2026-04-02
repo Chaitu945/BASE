@@ -13,3 +13,4 @@ This is almost my 5th day lol
 23/03/2026 did something but not fully involved
 24/03/2026 no nothing
 26/03/2026 nothing today as well
+02/04/2026 wandering what actually agent workflow means?? 
