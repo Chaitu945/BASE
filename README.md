@@ -16,3 +16,4 @@ This is almost my 5th day lol
 02/04/2026 wandering what actually agent workflow means?? 
 05/04/2026 came back from Airport, may be will restart my study from tmrw!!?
 08/04/2026 no bro nothing again
+13/04/2026 dey days man, can't take this lose :(
