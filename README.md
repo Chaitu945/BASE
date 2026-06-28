@@ -22,3 +22,4 @@ This is almost my 5th day lol
 13/05/2026 almost 1 week I was in sandy sis's marriage  
 22/05/2026 feeling extreme heat Iam and not even trying to work at least 
 31/05/2026 oops it's already last day of May
+28/06/2026 restarted it again, this time with full confidence
