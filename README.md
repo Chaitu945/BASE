@@ -24,3 +24,4 @@ This is almost my 5th day lol
 31/05/2026 oops it's already last day of May
 28/06/2026 restarted it again, this time with full confidence
 03/07/2026 grinded on mirai dc and did some code
+04/07/2026 too rainy today and very less power supply
