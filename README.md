@@ -26,3 +26,4 @@ This is almost my 5th day lol
 03/07/2026 grinded on mirai dc and did some code
 04/07/2026 too rainy today and very less power supply
 06/08/2026 started working on a translator bot
+12/08/26 been busy with RH, will be back very soon
