@@ -29,3 +29,4 @@ This is almost my 5th day lol
 12/08/26 been busy with RH, will be back very soon
 16/08/26 still on RH
 26/06/26 days passing slowly improving but one day i could makeit c u soon
+29/08/26 got quasarr and iam still doing my best
