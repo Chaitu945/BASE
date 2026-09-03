@@ -30,3 +30,4 @@ This is almost my 5th day lol
 16/08/26 still on RH
 26/06/26 days passing slowly improving but one day i could makeit c u soon
 29/08/26 got quasarr and iam still doing my best
+04/09/2026 still struggling in the rh trenches, gonna work on a mint bot
