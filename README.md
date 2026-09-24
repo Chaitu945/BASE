@@ -34,3 +34,5 @@ This is almost my 5th day lol
 07/09/2026 started working on rh zun bot
 09/07/2026 i should start working on morsy bot too
 11/09/26 working on a dashboard, will update very soon
+25/09/26 gonna restart the portfolio page again
+
