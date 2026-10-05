@@ -37,5 +37,6 @@ This is almost my 5th day lol
 25/09/26 gonna restart the portfolio page again
 29/09/26 end of the month was sorting out some things
 30/09/26 started something learning after long gap, cloud things
+06/10/26 6th day and im yet to start the things lol
 
 
